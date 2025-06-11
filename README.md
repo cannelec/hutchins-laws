@@ -32,4 +32,4 @@ This work is licensed under [CC BY-NC-ND 4.0](https://creativecommons.org/licens
 You may share freely with attribution. Commercial use and derivative works are prohibited.
 
 ---
-> For inquiries or speaking opportunities: [dalehutchins.com](https://dalehutchins.com)
+> For inquiries: [cannelec.com](https://cannelec.com)
