@@ -16,7 +16,7 @@ The laws:
 
 ## 📄 Download
 
-- [Whitepaper PDF (v2.0)](./Hutchins-Laws-of-Conscious-Creation-v2.0.pdf)
+- [Whitepaper PDF (v2.0)](./Hutchins-Laws-of-Conscious-Creation-v3.4.pdf)
 
 ## 🧠 Core Laws
 
